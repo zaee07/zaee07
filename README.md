@@ -1,5 +1,5 @@
 ### Hi there 👋
-Perkenalkan nama saya **Muhammad Ihza Sofyansyah**.
+panggil saja **Ihza**.
 
 <!--
 **zaee07/zaee07** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
